@@ -1,1 +1,1 @@
-Learn@fligngit
+Buque, Earyl James - BSIT
